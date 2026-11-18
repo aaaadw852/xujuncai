@@ -4,8 +4,8 @@ Stainless steel hydraulic fittings and hydraulic hose manufacturer in China.
 
 ## Official Websites
 
-- **English:** https://hebeirongchang.com/ — Hydraulic Hose, Hydraulic Fittings & Stainless Steel Fittings Manufacturer in China
-- **中文站:** https://hebeirongchang.cn/ — 液压软管厂家 | 液压接头·不锈钢接头·扣压接头·卡套接头·胶管总成
+- **English:** [hebeirongchang.com](https://hebeirongchang.com/) — Hydraulic Hose, Hydraulic Fittings & Stainless Steel Fittings Manufacturer in China
+- **中文站:** [hebeirongchang.cn](https://hebeirongchang.cn/) — 液压软管厂家 | 液压接头·不锈钢接头·扣压接头·卡套接头·胶管总成
 
 ## Products
 
